@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Creation
 - 🌱 I’m currently completing my Bachelor's 
 - 💞️ I’m looking to collaborate on codeing
-- 📫 How to reach me here is my primary email: balasubrahmanyammantri@gmail.com
+- 📫 How to reach me.....here is my primary email: balasubrahmanyammantri@gmail.com
 - That's all for now...
 
 <!---
